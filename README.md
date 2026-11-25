@@ -1,4 +1,4 @@
-<img width="543" height="201" alt="image" src="https://github.com/user-attachments/assets/8063071d-f9c8-4090-a92e-94abe6095683" />
+<img width="655" height="234" alt="image" src="https://github.com/user-attachments/assets/63128568-a610-4666-acd1-2411efb7026b" />
 
 ## (did I accidently reveal my profile?)
 
